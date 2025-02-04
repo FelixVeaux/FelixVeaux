@@ -19,3 +19,5 @@ All humans and animals are **living beings** and will be treated with **dignity*
 Coupling my **curiosity** and desire to make a difference, I am undertaking an **MMA** at **McGill University** to build the foundation for **research methods** and **data science** to leverage these tools within the sphere of **Social Business**. 🔍
 
 #### 🌟 **MAKE A DIFFERENCE!!** 🌟
+
+##### Let's Connect on Linkedin: https://www.linkedin.com/in/felix-veaux/
